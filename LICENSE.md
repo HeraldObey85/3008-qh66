@@ -1,4 +1,4 @@
-#  
+#  secret 3008 Scripts is the best 3008 Script, featuring invisibility and teleport. Safe and powerful for all your needs.
 
 
 
